@@ -1,0 +1,1 @@
+# gdg_on_campus_ntpu-teaching-style-skill
